@@ -1,0 +1,1 @@
+# Updated-SnowPro-Core-Questions-That-Bring-Exceptional-Results-in-Snowflake-Exam
